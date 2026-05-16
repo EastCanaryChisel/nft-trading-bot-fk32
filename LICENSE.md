@@ -1,4 +1,4 @@
-# 
+# nft trading bot smart Bot - liquidity-analysis and real-time-monitoring offers the most advanced nft trading bot, with liquidity-analysis and real-time-monitoring. Ideal for
 
 
 
